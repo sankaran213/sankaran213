@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **thehellrocker666@gmail.com**
 
-- 📄 Know about my experiences [6 months](6 months)
+- 📄 Know about my experiences [1 year 2 months](1 year 2 months)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
